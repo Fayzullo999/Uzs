@@ -1,0 +1,2 @@
+# Uzs
+Bizda koʻp
